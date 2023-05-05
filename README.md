@@ -1,0 +1,2 @@
+#Feelthebeat
+Welcome to Feel the Beat, where we offer a variety of dance classes for all levels and ages! Our experienced instructors will guide you through the rhythm and movements of different dance styles, from hip-hop to salsa, contemporary to ballroom. Whether you're looking to improve your skills, stay fit, or simply have fun, we have something for everyone. Join us and feel the beat today!
